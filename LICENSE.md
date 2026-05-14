@@ -1,4 +1,4 @@
-
+Get ahead in sol's rng with top Script for sol's rng, featuring auto-farm and invisibility. Download now to dominate every match with ease and confidence, thanks to its advanced
 
 
 
